@@ -1,3 +1,12 @@
 # chatgpt-account
+
 chatgpt账号分享-购买ChatGPT账号-出售ChatGPT账号-ChatGPT账号安全交易-ChatGPT账号价格-4元120美金账号-10元-120美金账号
 ![chatgpt账号分享](https://images.gitee.com/uploads/images/2022/0413/102236_8231b056_2114052.jpeg "微信图片_20220412161303.jpg")
+每天共享账号
+
+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
+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
+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
+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
+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
+请各位手下留情，且用且珍惜
